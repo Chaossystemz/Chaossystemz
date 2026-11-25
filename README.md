@@ -2,7 +2,7 @@
 
 
 
-[atabook](https://flayedrocker.atabook.org/)     <img width="750" height="75" alt="tumblr_d7afd02860dd1022f7bd1bd2d9e65435_776e9094_1280" src="https://github.com/user-attachments/assets/594b07d5-2961-4caf-9f1a-689240a3b26c" />
+[atabook](https://flayedrocker.atabook.org/)     <img width="750" height="50" alt="tumblr_d7afd02860dd1022f7bd1bd2d9e65435_776e9094_1280" src="https://github.com/user-attachments/assets/594b07d5-2961-4caf-9f1a-689240a3b26c" />
                                                                [pronouns](https://pronouns.cc/@Hybridzdance)
 
 
