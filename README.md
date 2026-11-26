@@ -2,7 +2,7 @@
 
 
 
-[atabook](https://flayedrocker.atabook.org/)  ㅤ ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ [pronouns](https://pronouns.cc/@Hybridzdance)
+[atabook](https://flayedrocker.atabook.org/)  ㅤ ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ[pronouns](https://pronouns.cc/@Hybridzdance)
 
 
        
