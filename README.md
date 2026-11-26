@@ -2,7 +2,7 @@
 
 
 
- ㅤ ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ[pronouns](https://pronouns.cc/@Hybridzdance)
+ ㅤ ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ[pronouns](https://pronouns.cc/@Hybridzdance)
 
 
        
